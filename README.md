@@ -1,8 +1,8 @@
-### Hi there 👋
+### Hi there 👋 Lee Yaohui
 
 ## I'm now in Shanghai, trying to get my postgraduate degree.
 
-## I'm currently learning how to use coding skills to
+## I'm currently learning how to use coding skills to work more efficiently.
 
 
 <!--
