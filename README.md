@@ -1,5 +1,10 @@
 ### Hi there 👋
 
+## I'm now in Shanghai, trying to get my postgraduate degree.
+
+## I'm currently learning how to use coding skills to
+
+
 <!--
 **dashinash/dashinash** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
